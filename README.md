@@ -1,4 +1,4 @@
 # ⚙️SCRYPT BY MF_youend⚙️
 ===========================================================================
 # 📝REGISTER VIA TELEGRAM
-  ®️https://t.me/MF_youend
+  📧https://t.me/MF_youend
